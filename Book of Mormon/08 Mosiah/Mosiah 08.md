@@ -1,0 +1,42 @@
+## 1.
+And it came to pass that after king Limhi had made an end of speaking to his people, for he spake many things unto them and only a few of them have I written in this book, he told his people all the things concerning their brethren who were in the land of Zarahemla.
+## 2.
+And he caused that Ammon should stand up before the multitude, and rehearse unto them all that had happened unto their brethren from the time that Zeniff went up out of the land even until the time that he himself came up out of the land.
+## 3.
+And he also rehearsed unto them the last words which king Benjamin had taught them, and explained them to the people of king Limhi, so that they might understand all the words which he spake.
+## 4.
+And it came to pass that after he had done all this, that king Limhi dismissed the multitude, and caused that they should return every one unto his own house.
+## 5.
+And it came to pass that he caused that the plates which contained the record of his people from the time that they left the land of Zarahemla, should be brought before Ammon, that he might read them.
+## 6.
+Now, as soon as Ammon had read the record, the king inquired of him to know if he could interpret languages, and Ammon told him that he could not.
+## 7.
+And the king said unto him: Being grieved for the afflictions of my people, I caused that forty and three of my people should take a journey into the wilderness, that thereby they might find the land of Zarahemla, that we might appeal unto our brethren to deliver us out of bondage.
+## 8.
+And they were lost in the wilderness for the space of many days, yet they were diligent, and found not the land of Zarahemla but returned to this land, having traveled in a land among many waters, having discovered a land which was covered with bones of men, and of beasts, and was also covered with ruins of buildings of every kind, having discovered a land which had been peopled with a people who were as numerous as the hosts of Israel.
+## 9.
+And for a testimony that the things that they had said are true they have brought twenty-four plates which are filled with engravings, and they are of pure gold.
+## 10.
+And behold, also, they have brought breastplates, which are large, and they are of brass and of copper, and are perfectly sound.
+## 11.
+And again, they have brought swords, the hilts thereof have perished, and the blades thereof were cankered with rust; and there is no one in the land that is able to interpret the language or the engravings that are on the plates. Therefore I said unto thee: Canst thou translate?
+## 12.
+And I say unto thee again: Knowest thou of any one that can translate? For I am desirous that these records should be translated into our language; for, perhaps, they will give us a knowledge of a remnant of the people who have been destroyed, from whence these records came; or, perhaps, they will give us a knowledge of this very people who have been destroyed; and I am desirous to know the cause of their destruction.
+## 13.
+Now Ammon said unto him: I can assuredly tell thee, O king, of a man that can translate the records; for he has wherewith that he can look, and translate all records that are of ancient date; and it is a gift from God. And the things are called interpreters, and no man can look in them except he be commanded, lest he should look for that he ought not and he should perish. And whosoever is commanded to look in them, the same is called seer.
+## 14.
+And behold, the king of the people who are in the land of Zarahemla is the man that is commanded to do these things, and who has this high gift from God.
+## 15.
+And the king said that a seer is greater than a prophet.
+## 16.
+And Ammon said that a seer is a revelator and a prophet also; and a gift which is greater can no man have, except he should possess the power of God, which no man can; yet a man may have great power given him from God.
+## 17.
+But a seer can know of things which are past, and also of things which are to come, and by them shall all things be revealed, or, rather, shall secret things be made manifest, and hidden things shall come to light, and things which are not known shall be made known by them, and also things shall be made known by them which otherwise could not be known.
+## 18.
+Thus God has provided a means that man, through faith, might work mighty miracles; therefore he becometh a great benefit to his fellow beings.
+## 19.
+And now, when Ammon had made an end of speaking these words the king rejoiced exceedingly, and gave thanks to God, saying: Doubtless a great mystery is contained within these plates, and these interpreters were doubtless prepared for the purpose of unfolding all such mysteries to the children of men.
+## 20.
+O how marvelous are the works of the Lord, and how long doth he suffer with his people; yea, and how blind and impenetrable are the understandings of the children of men; for they will not seek wisdom, neither do they desire that she should rule over them!
+## 21.
+Yea, they are as a wild flock which fleeth from the shepherd, and scattereth, and are driven, and are devoured by the beasts of the forest.
