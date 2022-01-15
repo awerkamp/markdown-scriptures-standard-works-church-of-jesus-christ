@@ -55,6 +55,6 @@ And I, Nephi, heard and bear record, that the name of the apostle of the Lamb wa
 ## 28.
 And behold, I, Nephi, am forbidden that I should write the remainder of the things which I saw and heard; wherefore the things which I have written sufficeth me; and I have written but a small part of the things which I saw.
 ## 29.
-And I bear record that I saw the things which my father saw, and the angel of the Lord did make them known unto me. [So, Lehi saw all of the things pertaining to the end of the world, also?]
+And I bear record that I saw the things which my father saw, and the angel of the Lord did make them known unto me. 
 ## 30.
 And now I make an end of speaking concerning the things which I saw while I was carried away in the spirit; and if all the things which I saw are not written, the things which I have written are true. And thus it is. Amen.

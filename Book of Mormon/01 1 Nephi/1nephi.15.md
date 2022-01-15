@@ -4,7 +4,7 @@ And it came to pass that after I, Nephi, had been carried away in the spirit, an
 And it came to pass that I beheld my brethren, and they were disputing one with another concerning the things which my father had spoken unto them.
 ## 3.
 For he truly spake many great things unto them, which were hard to be understood, save a man should inquire of the Lord; and they being hard in their hearts, therefore they did not look unto the Lord as they ought.
-## 4.
+## 4. 
 And now I, Nephi, was grieved because of the hardness of their hearts, and also, because of the things which I had seen, and knew they must unavoidably come to pass because of the great wickedness of the children of men.
 ## 5.
 And it came to pass that I was overcome because of my afflictions, for I considered that mine afflictions were great above all, because of the destruction of my people, for I had beheld their fall.
@@ -51,7 +51,7 @@ Wherefore, I, Nephi, did exhort them to give heed unto the word of the Lord; yea
 ## 26.
 And they said unto me: What meaneth the river of water which our father saw?
 ## 27.
-And I said unto them that the water which my father saw was filthiness; and so much was his mind swallowed up in other things that he beheld not the filthiness of the water. [Nephi was shown the same things as his father, but they saw different things.]
+And I said unto them that the water which my father saw was filthiness; and so much was his mind swallowed up in other things that he beheld not the filthiness of the water. 
 ## 28.
 And I said unto them that it was an awful gulf, which separated the wicked from the tree of life, and also from the saints of God.
 ## 29.

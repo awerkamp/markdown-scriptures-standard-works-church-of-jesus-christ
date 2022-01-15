@@ -1,5 +1,5 @@
 ## 1.
-And now I would that ye might know, that after my father, Lehi, had made an end of prophesying concerning his seed, it came to pass that the Lord spake unto him again, saying that it was not meet for him, Lehi, that he should take his family into the wilderness alone; but that his sons should take daughters to wife, that they might raise up seed unto the Lord in the land of promise. [doctrine of families]
+And now I would that ye might know, that after my father, Lehi, had made an end of prophesying concerning his seed, it came to pass that the Lord spake unto him again, saying that it was not meet for him, Lehi, that he should take his family into the wilderness alone; but that his sons should take daughters to wife, that they might raise up seed unto the Lord in the land of promise. 
 ## 2.
 And it came to pass that the Lord commanded him that I, Nephi, and my brethren, should again return unto the land of Jerusalem, and bring down Ishmael and his family into the wilderness.
 ## 3.

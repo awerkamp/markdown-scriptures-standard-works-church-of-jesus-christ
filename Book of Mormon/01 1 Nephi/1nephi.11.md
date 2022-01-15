@@ -19,7 +19,7 @@ And it came to pass after I had seen the tree, I said unto the Spirit: I behold 
 ## 10.
 And he said unto me: What desirest thou?
 ## 11.
-And I said unto him: To know the interpretation thereof--for I spake unto him as a man speaketh; for I beheld that he was in the form of a man; yet nevertheless, I knew that it was the Spirit of the Lord; and he spake unto me as a man speaketh with another. [Lehi saw a vision, but Nephi gets the guided tour of it.]
+And I said unto him: To know the interpretation thereof--for I spake unto him as a man speaketh; for I beheld that he was in the form of a man; yet nevertheless, I knew that it was the Spirit of the Lord; and he spake unto me as a man speaketh with another. 
 ## 12.
 And it came to pass that he said unto me: Look! And I looked as if to look upon him, and I saw him not; for he had gone from before my presence.
 ## 13.

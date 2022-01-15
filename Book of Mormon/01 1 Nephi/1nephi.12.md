@@ -31,7 +31,7 @@ And it came to pass that I looked and beheld the people of my seed gathered toge
 ## 16.
 And the angel spake unto me, saying: Behold the fountain of filthy water which thy father saw; yea, even the river of which he spake; and the depths thereof are the depths of hell.
 ## 17.
-And the mists of darkness are the temptations of the devil, which blindeth the eyes, and hardeneth the hearts of the children of men, and leadeth them away into broad roads, [as opposed to the strait and narrow way] that they perish and are lost.
+And the mists of darkness are the temptations of the devil, which blindeth the eyes, and hardeneth the hearts of the children of men, and leadeth them away into broad roads, that they perish and are lost.
 ## 18.
 And the large and spacious building, which thy father saw, is vain imaginations and the pride of the children of men. And a great and a terrible gulf divideth them; yea, even the word of the justice of the Eternal God, and the Messiah who is the Lamb of God, of whom the Holy Ghost beareth record, from the beginning of the world until this time, and from this time henceforth and forever.
 ## 19.
