@@ -8,5 +8,5 @@ Each verse has a H2 heading so they can be cross-referenced via Wikilinks in an 
 Blockquotes can be used to write comments directly after a verse by using the markdown > symbol  
 - I left a few of my comments in 1 Nephi as an example 
 
-Visual Studio Code's Find and Replace is a quick way to change file names, verse headings, ect
+Visual Studio Code's Find and Replace is an efficient way to change file names, verse headings, ect
 - https://docs.microsoft.com/en-us/visualstudio/ide/using-regular-expressions-in-visual-studio?view=vs-2022
