@@ -11,5 +11,5 @@ Blockquotes can be used to write comments directly after a verse by using the ma
 Visual Studio Code's Find and Replace is an efficient way to change file content (verse headings, ect)
 - https://docs.microsoft.com/en-us/visualstudio/ide/using-regular-expressions-in-visual-studio?view=vs-2022
 
-Write a script or use a name changing application like namechanger for the mac to change file names
+A name changing application like namechanger for mac works well to change file names
 - https://mrrsoftware.com/namechanger/
