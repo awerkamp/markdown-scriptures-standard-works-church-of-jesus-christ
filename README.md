@@ -1,4 +1,4 @@
-Files are written lowercase in an API like format for faster opening and linking (1nephi01)
+Files are written lowercase with the chapter following for fast opening and linking (1nephi01)
 
 Folders are numbered in order to enable using file navigation for sequential reading (01 1 Nephi, 02 2 Nephi, ...)
 - An application like Obsidian can star a file and a reader can update that star as they read sequentially
