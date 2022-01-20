@@ -1,5 +1,5 @@
 
-> I really enjoy how this chapter talks about our day and makes clear many of the things that are happening and will yet happen. m
+> I really enjoy how this chapter and how we see nephi interpret the scriptures. He helps me in understanding many of the things that are happening and what is to come. 
 ## 1.
 And now it came to pass that after I, Nephi, had read these things which were engraven upon the plates of brass, my brethren came unto me and said unto me: What meaneth these things which ye have read? Behold, are they to be understood according to things which are spiritual, which shall come to pass according to the spirit and not the flesh?
 ## 2.

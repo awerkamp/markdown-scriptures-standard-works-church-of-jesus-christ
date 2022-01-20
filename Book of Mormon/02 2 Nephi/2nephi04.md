@@ -51,9 +51,9 @@ And upon the wings of his Spirit hath my body been carried away upon exceedingly
 ## 26.
 O then, if I have seen so great things, if the Lord in his condescension unto the children of men hath visited men in so much mercy, why should my heart weep and my soul linger in the valley of sorrow, and my flesh waste away, and my strength slacken, because of mine afflictions?
 ## 27.
-And why should I yield to sin, because of my flesh? Yea, why should I give way to temptations, that the evil one have place in my heart to destroy my peace and afflict my soul? Why am I angry because of mine enemy? [His anger is never mentioned, but he acknowledges that his enemies do make him angry.]
+And why should I yield to sin, because of my flesh? Yea, why should I give way to temptations, that the evil one have place in my heart to destroy my peace and afflict my soul? Why am I angry because of mine enemy? 
 ## 28.
-Awake, my soul! [A soul that is awake is one that is ready to receive the Spirit and act upon its promptings.] No longer droop in sin. Rejoice, O my heart, and give place no more for the enemy of my soul.
+Awake, my soul! No longer droop in sin. Rejoice, O my heart, and give place no more for the enemy of my soul.
 ## 29.
 Do not anger again because of mine enemies. Do not slacken my strength because of mine afflictions.
 ## 30.
@@ -67,4 +67,4 @@ O Lord, wilt thou encircle me around in the robe of thy righteousness! O Lord, w
 ## 34.
 O Lord, I have trusted in thee, and I will trust in thee forever. I will not put my trust in the arm of flesh; for I know that cursed is he that putteth his trust in the arm of flesh. Yea, cursed is he that putteth his trust in man or maketh flesh his arm.
 ## 35.
-Yea, I know that God will give liberally to him that asketh. <James 1:35> Yea, my God will give me, if I ask not amiss; therefore I will lift up my voice unto thee; yea, I will cry unto thee, my God, the rock of my righteousness. Behold, my voice shall forever ascend up unto thee, my rock and mine everlasting God. Amen.
+Yea, I know that God will give liberally to him that asketh. [[<James 1:35]] Yea, my God will give me, if I ask not amiss; therefore I will lift up my voice unto thee; yea, I will cry unto thee, my God, the rock of my righteousness. Behold, my voice shall forever ascend up unto thee, my rock and mine everlasting God. Amen.
