@@ -14,5 +14,5 @@ You might consider writing comments that apply only to a particular verse direct
 Visual Studio Code's Find and Replace is an efficient way to change file content (verse headings, ect)
 - https://docs.microsoft.com/en-us/visualstudio/ide/using-regular-expressions-in-visual-studio?view=vs-2022
 
-A name changing application like namechanger for mac works well to change file names
+A name changing application like namechanger for mac works well to bulk change file names
 - https://mrrsoftware.com/namechanger/
