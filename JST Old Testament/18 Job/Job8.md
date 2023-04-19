@@ -1,0 +1,46 @@
+[[JST/JST Old Testament/18 Job/Job7|<< Job 7]] | [[Job|Job]] | [[JST/JST Old Testament/18 Job/Job9|Job 9 >>]]
+## 1.
+Then answered Bildad, the Shuhite, and said,
+## 2.
+How long wilt thou speak these things? And how long shall the words of thy mouth be like a strong wind?
+## 3.
+Doth God pervert judgment? Or doth the Almighty pervert justice?
+## 4.
+If thy children have sinned against him and he have cast them away for their transgression,
+## 5.
+If thou wouldest seek unto God betimes and make thy supplication to the Almighty,
+## 6.
+If thou wert pure and upright, surely now he would awake for thee and make the habitation of thy righteousness prosperous.
+## 7.
+Though thy beginning was small, yet thy latter end should greatly increase.
+## 8.
+For inquire, I pray thee, of the former age, and prepare thyself to the search of their fathers.
+## 9.
+(For we are but of yesterday and know nothing because our days upon earth are a shadow.)
+## 10.
+Shall not they teach thee, and tell thee, and utter words out of their heart?
+## 11.
+Can the rush grow up without mire? Can the flag grow without water?
+## 12.
+Whilst it is yet in his greenness and not cut down, it withereth before any other herb.
+## 13.
+So are the paths of all that forget God; and the hypocrite\'s hope shall perish,
+## 14.
+Whose hope shall be cut off and whose trust shall be a spider\'s web.
+## 15.
+He shall lean upon his house, but it shall not stand; he shall hold it fast, but it shall not endure.
+## 16.
+He is green before the sun, and his branch shooteth forth in his garden.
+## 17.
+His roots are wrapped about the heap and seeth the place of stones.
+## 18.
+If he destroy him from his place, then it shall deny him, saying, I have not seen thee.
+## 19.
+Behold, this is the joy of his way, and out of the earth shall others grow.
+## 20.
+Behold, God will not cast away a perfect man; neither will he help the evildoers,
+## 21.
+Till he fill thy mouth with laughing and thy lips with rejoicing.
+## 22.
+They that hate thee shall be clothed with shame; and the dwelling place of the wicked shall come to naught.
+

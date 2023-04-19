@@ -1,0 +1,42 @@
+[[JST/JST Old Testament/12 2Kings/2Kings21|<< 2 Kings 21]] | [[2Kings|2 Kings]] | [[JST/JST Old Testament/12 2Kings/2Kings23|2 Kings 23 >>]]
+## 1.
+Josiah was eight years old when he began to reign, and he reigned thirty and one years in Jerusalem. And his mother\'s name was Jedidah, the daughter of Adaiah of Boscath.
+## 2.
+And he did that which was right in the sight of the Lord, and walked in all the way of David, his father, and turned not aside to the right hand or to the left.
+## 3.
+And it came to pass in the eighteenth year of King Josiah that the king sent Shaphan, the son of Azaliah, the son of Meshullam, the scribe, to the house of the Lord, saying,
+## 4.
+Go up to Hilkiah, the high priest, that he may sum the silver which is brought into the house of the Lord, which the keepers of the door have gathered of the people;
+## 5.
+And let them deliver it into the hand of the doers of the work that have the oversight of the house of the Lord; and let them give it to the doers of the work, which is in the house of the Lord, to repair the breaches of the house,
+## 6.
+Unto carpenters, and builders, and masons and to buy timber and hewn stone to repair the house.
+## 7.
+Howbeit, there was no reckoning made with them of the money that was delivered into their hand because they dealt faithfully.
+## 8.
+And Hilkiah, the high priest, said unto Shaphan, the scribe, I have found the book of the law in the house of the Lord. And Hilkiah gave the book to Shaphan, and he read it.
+## 9.
+And Shaphan, the scribe, came to the king, and brought the king word again, and said, Thy servants have gathered the money that was found in the house and have delivered it into the hand of them that do the work, that have the oversight of the house of the Lord.
+## 10.
+And Shaphan, the scribe, showed the king, saying, Hilkiah, the priest, hath delivered me a book. And Shaphan read it before the king.
+## 11.
+And it came to pass, when the king had heard the words of the book of the law, that he rent his clothes.
+## 12.
+And the king commanded Hilkiah, the priest, and Ahikam, the son of Shaphan, and Achbor, the son of Michaiah, and Shaphan, the scribe, and Asahiah, a servant of the king, saying,
+## 13.
+Go ye; inquire of the Lord for me, and for the people, and for all Judah concerning the words of this book that is found; for great is the wrath of the Lord that is kindled against us because our fathers have not hearkened unto the words of this book, to do according unto all that is written concerning us.
+## 14.
+So Hilkiah, the priest, and Ahikam, and Achbor, and Shaphan, and Asahiah went unto Huldah, the prophetess, the wife of Shallum, the son of Tikvah, the son of Harhas, keeper of the wardrobe (now she dwelt in Jerusalem in the college); and they communed with her.
+## 15.
+And she said unto them, Thus saith the Lord God of Israel, Tell the man that sent you to me,
+## 16.
+Thus saith the Lord, Behold, I will bring evil upon this place and upon the inhabitants thereof, even all the words of the book which the king of Judah hath read,
+## 17.
+Because they have forsaken me and have burned incense unto other gods, that they might provoke me to anger with all the works of their hands; therefore, my wrath shall be kindled against this place and shall not be quenched.
+## 18.
+But to the king of Judah which sent you to inquire of the Lord, thus shall ye say to him, Thus saith the Lord God of Israel, As touching the words which thou hast heard,
+## 19.
+Because thine heart was tender, and thou hast humbled thyself before the Lord when thou heardest what I spake against this place and against the inhabitants thereof, that they should become a desolation and a curse, and hast rent thy clothes, and wept before me, I also have heard thee, saith the Lord.
+## 20.
+Behold, therefore, I will gather thee unto thy fathers, and thou shalt be gathered into thy grave in peace; and thine eyes shall not see all the evil which I will bring upon this place. And they brought the king word again.
+

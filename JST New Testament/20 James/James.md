@@ -1,0 +1,5 @@
+[[JST/JST New Testament/20 James/James1]]
+[[JST/JST New Testament/20 James/James2]]
+[[JST/JST New Testament/20 James/James3]]
+[[JST/JST New Testament/20 James/James4]]
+[[JST/JST New Testament/20 James/James5]]

@@ -1,0 +1,60 @@
+[[JST/JST Old Testament/09 1Samuel/1Samuel22|<< 1 Samuel 22]] | [[1Samuel|1 Samuel]] | [[JST/JST Old Testament/09 1Samuel/1Samuel24|1 Samuel 24 >>]]
+## 1.
+Then they told David, saying, Behold, the Philistines fight against Keilah, and they rob the threshing floors.
+## 2.
+Therefore, David inquired of the Lord, saying, Shall I go and smite these Philistines? And the Lord said unto David, Go, and smite the Philistines, and save Keilah.
+## 3.
+And David\'s men said unto him, Behold, we be afraid here in Judah. How much more then if we come to Keilah against the armies of the Philistines?
+## 4.
+Then David inquired of the Lord yet again. And the Lord answered him and said, Arise; go down to Keilah, for I will deliver the Philistines into thine hand.
+## 5.
+So David and his men went to Keilah, and fought with the Philistines, and brought away their cattle, and smote them with a great slaughter. So David saved the inhabitants of Keilah.
+## 6.
+And it came to pass, when Abiathar, the son of Ahimelech, fled to David to Keilah, that he came down with an ephod in his hand.
+## 7.
+And it was told Saul that David was come to Keilah. And Saul said, God hath delivered him into mine hand, for he is shut in by entering into a town that hath gates and bars.
+## 8.
+And Saul called all the people together to war, to go down to Keilah to besiege David and his men.
+## 9.
+And David knew that Saul secretly practiced mischief against him; and he said to Abiathar, the priest, Bring hither the ephod.
+## 10.
+Then said David, O Lord God of Israel, thy servant hath certainly heard that Saul seeketh to come to Keilah to destroy the city for my sake.
+## 11.
+Will the men of Keilah deliver me up into his hand? Will Saul come down as thy servant hath heard? O Lord God of Israel, I beseech thee, tell thy servant. And the Lord said, He will come down.
+## 12.
+Then said David, Will the men of Keilah deliver me and my men into the hand of Saul? And the Lord said, They will deliver thee up.
+## 13.
+Then David and his men, which were about six hundred, arose, and departed out of Keilah, and went whithersoever they could go. And it was told Saul that David was escaped from Keilah; and he forbare to go forth.
+## 14.
+And David abode in the wilderness in strongholds and remained in a mountain in the wilderness of Ziph. And Saul sought him every day, but God delivered him not into his hand.
+## 15.
+And David saw that Saul was come out to seek his life; and David was in the wilderness of Ziph in a wood.
+## 16.
+And Jonathan, Saul\'s son, arose, and went to David into the wood, and strengthened his hand in God.
+## 17.
+And he said unto him, Fear not, for the hand of Saul, my father, shall not find thee. And thou shalt be king over Israel, and I shall be next unto thee; and that also Saul, my father, knoweth.
+## 18.
+And they two made a covenant before the Lord; and David abode in the wood, and Jonathan went to his house.
+## 19.
+Then came up the Ziphites to Saul to Gibeah, saying, Doth not David hide himself with us in strongholds in the wood, in the hill of Hachilah, which is on the south of Jeshimon?
+## 20.
+Now, therefore, O King, come down according to all the desire of thy soul to come down; and our part shall be to deliver him into the king\'s hand.
+## 21.
+And Saul said, Blessed be ye of the Lord; for ye have compassion on me.
+## 22.
+Go, I pray you; prepare yet, and know, and see his place where his haunt is and who hath seen him there; for it is told me that he dealeth very subtly.
+## 23.
+See, therefore, and take knowledge of all the lurking places where he hideth himself, and come ye again to me with the certainty; and I will go with you; and it shall come to pass, if he be in the land, that I will search him out throughout all the thousands of Judah.
+## 24.
+And they arose and went to Ziph before Saul; but David and his men were in the wilderness of Maon, in the plain on the south of Jeshimon.
+## 25.
+Saul also and his men went to seek him. And they told David; wherefore, he came down into a rock and abode in the wilderness of Maon. And when Saul heard that, he pursued after David in the wilderness of Maon.
+## 26.
+And Saul went on this side of the mountain, and David and his men on that side of the mountain; and David made haste to get away for fear of Saul, for Saul and his men compassed David and his men round about, to take them.
+## 27.
+But there came a messenger unto Saul, saying, Haste thee and come; for the Philistines have invaded the land.
+## 28.
+Wherefore, Saul returned from pursuing after David and went against the Philistines; therefore, they called that place Sela-hammahlekoth.
+## 29.
+And David went up from thence and dwelt in strongholds at En-gedi.
+

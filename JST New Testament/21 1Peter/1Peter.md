@@ -1,0 +1,5 @@
+[[JST/JST New Testament/21 1Peter/1Peter1]]
+[[JST/JST New Testament/21 1Peter/1Peter2]]
+[[JST/JST New Testament/21 1Peter/1Peter3]]
+[[JST/JST New Testament/21 1Peter/1Peter4]]
+[[JST/JST New Testament/21 1Peter/1Peter5]]

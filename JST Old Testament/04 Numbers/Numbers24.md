@@ -1,0 +1,52 @@
+[[JST/JST Old Testament/04 Numbers/Numbers23|<< Numbers 23]] | [[Numbers|Numbers]] | [[JST/JST Old Testament/04 Numbers/Numbers25|Numbers 25 >>]]
+## 1.
+And when Balaam saw that it pleased the Lord to bless Israel, he went not as at other times to seek for enchantments, but he set his face toward the wilderness.
+## 2.
+And Balaam lifted up his eyes, and he saw Israel abiding in his tents according to their tribes; and the Spirit of God came upon him.
+## 3.
+And he took up his parable and said, Balaam, the son of Beor, hath said, and the man whose eyes are open hath said\--
+## 4.
+He hath said, which heard the words of God, which saw the vision of the Almighty, falling into a trance but having his eyes open,
+## 5.
+How goodly are thy tents, O Jacob, and thy tabernacles, O Israel!
+## 6.
+As the valleys are they spread forth, as gardens by the river\'s side, as the trees of lignaloes which the Lord hath planted, and as cedar trees beside the waters.
+## 7.
+He shall pour the water out of his buckets, and his seed shall be in many waters, and his king shall be higher than Agag, and his kingdom shall be exalted.
+## 8.
+God brought him forth out of Egypt; he hath as it were the strength of a unicorn; he shall eat up the nations his enemies, and shall break their bones, and pierce them through with his arrows.
+## 9.
+He couched; he lay down as a lion and as a great lion. Who shall stir him up? Blessed is he that blesseth thee, and cursed is he that curseth thee.
+## 10.
+And Balak\'s anger was kindled against Balaam, and he smote his hands together; and Balak said unto Balaam, I called thee to curse mine enemies, and behold, thou hast altogether blessed them these three times.
+## 11.
+Therefore, now flee thou to thy place; I thought to promote thee unto great honor; but lo, the Lord hath kept thee back from honor.
+## 12.
+And Balaam said unto Balak, Spake I not also to thy messengers which thou sentest unto me, saying,
+## 13.
+If Balak would give me his house full of silver and gold, I cannot go beyond the commandment of the Lord, to do either good or bad of mine own mind; but what the Lord saith, that will I speak?
+## 14.
+And now, behold, I go unto my people; come, therefore, and I will advertise thee what this people shall do to thy people in the latter days.
+## 15.
+And he took up his parable and said, Balaam, the son of Beor, hath said, and the man whose eyes are open hath said\--
+## 16.
+He hath said, which heard the words of God and knew the knowledge of the Most High, which saw the vision of the Almighty, falling into a trance but having his eyes open,
+## 17.
+I shall see him, but not now; I shall behold him, but not nigh; there shall come a Star out of Jacob, and a Scepter shall rise out of Israel, and shall smite the corners of Moab, and destroy all the children of Sheth.
+## 18.
+And Edom shall be a possession; Seir also shall be a possession for his enemies; and Israel shall do valiantly.
+## 19.
+Out of Jacob shall come he that shall have dominion and shall destroy him that remaineth of the city.
+## 20.
+And when he looked on Amalek, he took up his parable and said, Amalek was the first of the nations, but his latter end shall be that he perish forever.
+## 21.
+And he looked on the Kenites, and took up his parable, and said, Strong is thy dwelling place, and thou puttest thy nest in a rock.
+## 22.
+Nevertheless, the Kenite shall be wasted until Asshur shall carry thee away captive.
+## 23.
+And he took up his parable and said, Alas, who shall live when God doeth this!
+## 24.
+And ships shall come from the coast of Chittim, and shall afflict Asshur, and shall afflict Eber; and he also shall perish forever.
+## 25.
+And Balaam rose up, and went, and returned to his place; and Balak also went his way.
+

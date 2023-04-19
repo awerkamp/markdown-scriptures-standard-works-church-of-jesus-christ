@@ -1,0 +1,5 @@
+[[JST/JST New Testament/13 1Thessalonians/1Thessalonians1]]
+[[JST/JST New Testament/13 1Thessalonians/1Thessalonians2]]
+[[JST/JST New Testament/13 1Thessalonians/1Thessalonians3]]
+[[JST/JST New Testament/13 1Thessalonians/1Thessalonians4]]
+[[JST/JST New Testament/13 1Thessalonians/1Thessalonians5]]

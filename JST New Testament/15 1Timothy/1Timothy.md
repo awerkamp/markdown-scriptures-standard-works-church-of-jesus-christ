@@ -1,0 +1,6 @@
+[[JST/JST New Testament/15 1Timothy/1Timothy1]]
+[[JST/JST New Testament/15 1Timothy/1Timothy2]]
+[[JST/JST New Testament/15 1Timothy/1Timothy3]]
+[[JST/JST New Testament/15 1Timothy/1Timothy4]]
+[[JST/JST New Testament/15 1Timothy/1Timothy5]]
+[[JST/JST New Testament/15 1Timothy/1Timothy6]]

@@ -1,0 +1,6 @@
+[[JST/JST New Testament/09 Galatians/Galatians1]]
+[[JST/JST New Testament/09 Galatians/Galatians2]]
+[[JST/JST New Testament/09 Galatians/Galatians3]]
+[[JST/JST New Testament/09 Galatians/Galatians4]]
+[[JST/JST New Testament/09 Galatians/Galatians5]]
+[[JST/JST New Testament/09 Galatians/Galatians6]]
