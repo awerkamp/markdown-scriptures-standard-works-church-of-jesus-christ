@@ -14,7 +14,10 @@ You might consider writing comments that apply only to a particular verse direct
 Visual Studio Code's Find and Replace is an efficient way to change file content (verse headings, ect)
 - https://docs.microsoft.com/en-us/visualstudio/ide/using-regular-expressions-in-visual-studio?view=vs-2022
 
-A name changing application like namechanger for mac works well to bulk change file names
+Obsidian has a community plugin called Bulk Rename if you want to change file names (this will also update links)
+- https://github.com/OlegLustenko/obsidian-bulk-rename
+
+Another option if you are using macOS is namechanger
 - https://mrrsoftware.com/namechanger/
 
-This repo also includes the Joseph Smith Translation (JST, Inspired Version) of the New Testament and Old Testament
+In addition to the Standard Works, this repo also includes the Joseph Smith Translation (JST, Inspired Version) of the Bible
