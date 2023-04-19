@@ -16,3 +16,6 @@ Visual Studio Code's Find and Replace is an efficient way to change file content
 
 A name changing application like namechanger for mac works well to bulk change file names
 - https://mrrsoftware.com/namechanger/
+
+The JST version of the New and Old Testaments is the Joseph Smith New Translation (Inspired Version) as published 
+by the RLDS/Community of Christ
