@@ -1,0 +1,50 @@
+# THE TESTIMONY OF THE PROPHET JOSEPH SMITH
+The Prophet Joseph Smith’s own words about the coming forth of the Book of Mormon are:
+
+“On the evening of the … twenty-first of September [1823] … I betook myself to prayer and supplication to Almighty God. …
+
+“While I was thus in the act of calling upon God, I discovered a light appearing in my room, which continued to increase until the room was lighter than at noonday, when immediately a personage appeared at my bedside, standing in the air, for his feet did not touch the floor.
+
+“He had on a loose robe of most exquisite whiteness. It was a whiteness beyond anything earthly I had ever seen; nor do I believe that any earthly thing could be made to appear so exceedingly white and brilliant. His hands were naked, and his arms also, a little above the wrist; so, also, were his feet naked, as were his legs, a little above the ankles. His head and neck were also bare. I could discover that he had no other clothing on but this robe, as it was open, so that I could see into his bosom.
+
+“Not only was his robe exceedingly white, but his whole person was glorious beyond description, and his countenance truly like lightning. The room was exceedingly light, but not so very bright as immediately around his person. When I first looked upon him, I was afraid; but the fear soon left me.
+
+“He called me by name, and said unto me that he was a messenger sent from the presence of God to me, and that his name was Moroni; that God had a work for me to do; and that my name should be had for good and evil among all nations, kindreds, and tongues, or that it should be both good and evil spoken of among all people.
+
+“He said there was a book deposited, written upon gold plates, giving an account of the former inhabitants of this continent, and the source from whence they sprang. He also said that the fulness of the everlasting Gospel was contained in it, as delivered by the Savior to the ancient inhabitants;
+
+“Also, that there were two stones in silver bows—and these stones, fastened to a breastplate, constituted what is called the Urim and Thummim—deposited with the plates; and the possession and use of these stones were what constituted ‘seers’ in ancient or former times; and that God had prepared them for the purpose of translating the book. …
+
+“Again, he told me, that when I got those plates of which he had spoken—for the time that they should be obtained was not yet fulfilled—I should not show them to any person; neither the breastplate with the Urim and Thummim; only to those to whom I should be commanded to show them; if I did I should be destroyed. While he was conversing with me about the plates, the vision was opened to my mind that I could see the place where the plates were deposited, and that so clearly and distinctly that I knew the place again when I visited it.
+
+“After this communication, I saw the light in the room begin to gather immediately around the person of him who had been speaking to me, and it continued to do so until the room was again left dark, except just around him; when, instantly I saw, as it were, a conduit open right up into heaven, and he ascended till he entirely disappeared, and the room was left as it had been before this heavenly light had made its appearance.
+
+“I lay musing on the singularity of the scene, and marveling greatly at what had been told to me by this extraordinary messenger; when, in the midst of my meditation, I suddenly discovered that my room was again beginning to get lighted, and in an instant, as it were, the same heavenly messenger was again by my bedside.
+
+“He commenced, and again related the very same things which he had done at his first visit, without the least variation; which having done, he informed me of great judgments which were coming upon the earth, with great desolations by famine, sword, and pestilence; and that these grievous judgments would come on the earth in this generation. Having related these things, he again ascended as he had done before.
+
+“By this time, so deep were the impressions made on my mind, that sleep had fled from my eyes, and I lay overwhelmed in astonishment at what I had both seen and heard. But what was my surprise when again I beheld the same messenger at my bedside, and heard him rehearse or repeat over again to me the same things as before; and added a caution to me, telling me that Satan would try to tempt me (in consequence of the indigent circumstances of my father’s family), to get the plates for the purpose of getting rich. This he forbade me, saying that I must have no other object in view in getting the plates but to glorify God, and must not be influenced by any other motive than that of building his kingdom; otherwise I could not get them.
+
+“After this third visit, he again ascended into heaven as before, and I was again left to ponder on the strangeness of what I had just experienced; when almost immediately after the heavenly messenger had ascended from me for the third time, the cock crowed, and I found that day was approaching, so that our interviews must have occupied the whole of that night.
+
+“I shortly after arose from my bed, and, as usual, went to the necessary labors of the day; but, in attempting to work as at other times, I found my strength so exhausted as to render me entirely unable. My father, who was laboring along with me, discovered something to be wrong with me, and told me to go home. I started with the intention of going to the house; but, in attempting to cross the fence out of the field where we were, my strength entirely failed me, and I fell helpless on the ground, and for a time was quite unconscious of anything.
+
+“The first thing that I can recollect was a voice speaking unto me, calling me by name. I looked up, and beheld the same messenger standing over my head, surrounded by light as before. He then again related unto me all that he had related to me the previous night, and commanded me to go to my father and tell him of the vision and commandments which I had received.
+
+“I obeyed; I returned to my father in the field, and rehearsed the whole matter to him. He replied to me that it was of God, and told me to go and do as commanded by the messenger. I left the field, and went to the place where the messenger had told me the plates were deposited; and owing to the distinctness of the vision which I had had concerning it, I knew the place the instant that I arrived there.
+
+“Convenient to the village of Manchester, Ontario county, New York, stands a hill of considerable size, and the most elevated of any in the neighborhood. On the west side of this hill, not far from the top, under a stone of considerable size, lay the plates, deposited in a stone box. This stone was thick and rounding in the middle on the upper side, and thinner towards the edges, so that the middle part of it was visible above the ground, but the edge all around was covered with earth.
+
+“Having removed the earth, I obtained a lever, which I got fixed under the edge of the stone, and with a little exertion raised it up. I looked in, and there indeed did I behold the plates, the Urim and Thummim, and the breastplate, as stated by the messenger. The box in which they lay was formed by laying stones together in some kind of cement. In the bottom of the box were laid two stones crossways of the box, and on these stones lay the plates and the other things with them.
+
+“I made an attempt to take them out, but was forbidden by the messenger, and was again informed that the time for bringing them forth had not yet arrived, neither would it, until four years from that time; but he told me that I should come to that place precisely in one year from that time, and that he would there meet with me, and that I should continue to do so until the time should come for obtaining the plates.
+
+“Accordingly, as I had been commanded, I went at the end of each year, and at each time I found the same messenger there, and received instruction and intelligence from him at each of our interviews, respecting what the Lord was going to do, and how and in what manner his kingdom was to be conducted in the last days. …
+
+“At length the time arrived for obtaining the plates, the Urim and Thummim, and the breastplate. On the twenty-second day of September, one thousand eight hundred and twenty-seven, having gone as usual at the end of another year to the place where they were deposited, the same heavenly messenger delivered them up to me with this charge: that I should be responsible for them; that if I should let them go carelessly, or through any neglect of mine, I should be cut off; but that if I would use all my endeavors to preserve them, until he, the messenger, should call for them, they should be protected.
+
+“I soon found out the reason why I had received such strict charges to keep them safe, and why it was that the messenger had said that when I had done what was required at my hand, he would call for them. For no sooner was it known that I had them, than the most strenuous exertions were used to get them from me. Every stratagem that could be invented was resorted to for that purpose. The persecution became more bitter and severe than before, and multitudes were on the alert continually to get them from me if possible. But by the wisdom of God, they remained safe in my hands, until I had accomplished by them what was required at my hand. When, according to arrangements, the messenger called for them, I delivered them up to him; and he has them in his charge until this day, being the second day of May, one thousand eight hundred and thirty-eight.”
+
+For a more complete account, see Joseph Smith—History in the Pearl of Great Price.
+
+The ancient record thus brought forth from the earth as the voice of a people speaking from the dust, and translated into modern speech by the gift and power of God as attested by Divine affirmation, was first published to the world in the year 1830 as The Book of Mormon.
