@@ -18,7 +18,6 @@ And when I came to him I found that it was Laban.
 And I beheld his sword, and I drew it forth from the sheath thereof; and the hilt thereof was of pure gold, and the workmanship thereof was exceedingly fine, and I saw that the blade thereof was of the most precious steel.
 ## 10.
 And it came to pass that I was constrained by the Spirit that I should kill Laban; but I said in my heart: Never at any time have I shed the blood of man. And I shrunk and would that I might not slay him.
-> By killing Laban, Nephi broke the law of the land as well as one of the ten commandments, yet it was what the Lord asked him to do. We must be willing to live by the word of the Lord above all else. 
 ## 11.
 And the Spirit said unto me again: Behold the Lord hath delivered him into thy hands. Yea, and I also knew that he had sought to take away mine own life; yea, and he would not hearken unto the commandments of the Lord; and he also had taken away our property.
 ## 12.

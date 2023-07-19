@@ -6,7 +6,6 @@ For it sufficeth me to say that we are descendants of Joseph.
 And it mattereth not to me that I am particular to give a full account of all the things of my father, for they cannot be written upon these plates, for I desire the room that I may write of the things of God.
 ## 4.
 For the fulness of mine intent is that I may persuade men to come unto the God of Abraham, and the God of Isaac, and the God of Jacob, and be saved.
-> It is neat Nephi states his intent for writing and his intent is our salvation. 
 ## 5.
 Wherefore, the things which are pleasing unto the world I do not write, but the things which are pleasing unto God and unto those who are not of the world.
 ## 6.
