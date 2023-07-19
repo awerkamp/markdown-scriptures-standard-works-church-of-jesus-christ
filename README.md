@@ -20,5 +20,5 @@ Obsidian has a community plugin called Bulk Rename if you want to change file na
 Another option if you are using macOS is namechanger
 - https://mrrsoftware.com/namechanger/
 
-In addition to the Standard Works, this repo also includes the Joseph Smith Translation (JST, Inspired Version) of the Bible, which Joseph completed before July 1833. This is the complete JST with all changes so verse numbers will not always correspond with King James Version. You might choose to only study the King James version, only study the JST version, or study both side-by-side.  
+In addition to the Standard Works, this repo also includes the Joseph Smith Translation (JST, Inspired Version) of the Bible, which Joseph completed before July 1833. This is the complete JST with all changes and verse numbers will not always correspond with King James Version. You might choose to only study the King James version, only study the JST version, or study both side-by-side.  
 - https://www.churchofjesuschrist.org/study/history/topics/joseph-smith-translation-of-the-bible?lang=eng
