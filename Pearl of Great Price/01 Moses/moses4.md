@@ -42,14 +42,12 @@ And I, the Lord God, said unto the serpent: Because thou hast done this thou sha
 And I will put enmity between thee and the woman, between thy seed and her seed; and he shall bruise thy head, and thou shalt bruise his heel.
 ## 22.
 Unto the woman, I, the Lord God, said: I will greatly multiply thy sorrow and thy conception. In sorrow thou shalt bring forth children, and thy desire shall be to thy husband, and he shall rule over thee.
-> It is easy to take this verse as a curse because just before it God curses Satan. I think though, God is simply stating the trials Eve has ahead of her because of His plan. I think the world "rule" had a different connotation to Eve than it does to us today. We want God to rule over us because He is loving and He wants to bring us joy.  When God told Eve she woud desire her husband and he would rule over her, I think He is telling her she will have a loving husband who will serve and take care of her. I think he told her this directly after telling her of the sorrows she would experience, in order to provide comfort. 
 ## 23.
 And unto Adam, I, the Lord God, said: Because thou hast hearkened unto the voice of thy wife, and hast eaten of the fruit of the tree of which I commanded thee, saying--Thou shalt not eat of it, cursed shall be the ground for thy sake; in sorrow shalt thou eat of it all the days of thy life.
 ## 24.
 Thorns also, and thistles shall it bring forth to thee, and thou shalt eat the herb of the field.
 ## 25.
 By the sweat of thy face shalt thou eat bread, until thou shalt return unto the ground--for thou shalt surely die--for out of it wast thou taken: for dust thou wast, and unto dust shalt thou return.
-> Here too, I think God is speaking in love and is simply stating the difficult time Adam will have in providing for his family, so he is aware.c
 ## 26.
 And Adam called his wife's name Eve, because she was the mother of all living; for thus have I, the Lord God, called the first of all women, which are many.
 ## 27.

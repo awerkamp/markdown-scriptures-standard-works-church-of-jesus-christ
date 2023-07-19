@@ -14,7 +14,6 @@ Nevertheless, I do not write anything upon plates save it be that I think it be 
 For the things which some men esteem to be of great worth, both to the body and soul, others set at naught and trample under their feet. Yea, even the very God of Israel do men trample under their feet; I say, trample under their feet but I would speak in other words--they set him at naught, and hearken not to the voice of his counsels.
 ## 8.
 And behold he cometh, according to the words of the angel, in six hundred years from the time my father left Jerusalem.
-> why does Nephi say "my father" instead of "we"?
 ## 9.
 And the world, because of their iniquity, shall judge him to be a thing of naught; wherefore they scourge him, and he suffereth it; and they smite him, and he suffereth it. Yea, they spit upon him, and he suffereth it, because of his loving kindness and his long-suffering towards the children of men.
 ## 10.

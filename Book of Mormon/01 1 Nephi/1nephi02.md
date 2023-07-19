@@ -5,8 +5,7 @@ And it came to pass that the Lord commanded my father, even in a dream, that he 
 ## 3.
 And it came to pass that he was obedient unto the word of the Lord, wherefore he did as the Lord commanded him.
 ## 4.
-And it came to pass that he departed into the wilderness. And he left his house, and the land of his inheritance, and his gold, and his silver, and his precious things, and took nothing with him, save it were his family, and provisions, and tents, and departed into the wilderness.
-> Lehi's family left all their wealth and power behind and completely trusted the Lord.
+And it came to pass that he departed into the wilderness. And he left his house, and the land of his inheritance, and his gold, and his silver, and his precious things, and took nothing with him, save it were his family, and provisions, and tents, and departed into the wilderness.
 ## 5.
 And he came down by the borders near the shore of the Red Sea; and he traveled in the wilderness in the borders which are nearer the Red Sea; and he did travel in the wilderness with his family, which consisted of my mother, Sariah, and my elder brothers, who were Laman, Lemuel, and Sam.
 ## 6.
